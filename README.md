@@ -5,7 +5,7 @@
 大城小胖[视频介绍](http://v.youku.com/v_show/id_XMzU5NzQ5ODgw.html)
 
 ## QQ Group
-*	193076432
+*	137379612
 
 ## License
 原则上是免费的，但是偶尔会提示你购买。
